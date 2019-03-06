@@ -22,3 +22,6 @@ This is the definitive playlist of music to listen to on our desert island. No o
 [How about some Queen?](https://www.youtube.com/watch?v=a01QQZyl-_I)
 
 [Missy Elliott - Get Your Freak On](https://www.youtube.com/watch?v=FPoKiGQzbSQ)
+
+
+![Plastic Beach](https://en.seyvillas.com/img/guide/142/1400x0_90/cousin-island-aerial-view-1.jpg "An Island")
