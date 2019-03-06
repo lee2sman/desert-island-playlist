@@ -20,3 +20,5 @@ This is the definitive playlist of music to listen to on our desert island. No o
 [How about some Queen?](https://www.youtube.com/watch?v=a01QQZyl-_I)
 
 [Missy Elliott - Get Your Freak On](https://www.youtube.com/watch?v=FPoKiGQzbSQ)
+
+![meme](https://github.com/lee2sman/desert-island-playlist/blob/master/man-on-desert-island-never-got-to-pick-an-album-16145665.png?raw=true "meme image")
