@@ -9,4 +9,4 @@ This is the definitive playlist of music to listen to on our desert island. No o
 
 [Weezer - Island in the Sun](https://www.youtube.com/watch?v=erG5rgNYSdk)
 
-**[this is a link!!!](https://www.youtube.com/watch?v=dQw4w9WgXcQ)**
+[Rick Astley - Never Gonna Give You Up](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
