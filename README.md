@@ -3,6 +3,8 @@ This is the definitive playlist of music to listen to on our desert island. No o
 
 [The BeeGees - Stayin' Alive](https://www.youtube.com/watch?v=I_izvAbhExY)
 
+[Earth Wind and Fire](https://www.youtube.com/watch?v=god7hAPv8f0)
+
 [kpop](https://www.youtube.com/watch?v=kTlv5_Bs8aw)
 
 [David Tudor - Rainforest](https://www.youtube.com/watch?v=vj1WTsEPcG0)
@@ -15,15 +17,11 @@ This is the definitive playlist of music to listen to on our desert island. No o
 
 [Put the Lime in the Coconut](https://www.youtube.com/watch?v=5LxC3M-Yngs)
 
-[The Beatles - Hey Jude](https://www.youtube.com/watch?v=A_MjCqQoLLA)
-
 [How about some Queen?](https://www.youtube.com/watch?v=a01QQZyl-_I)
 
 [Young Thug - Wyclef Jean](https://www.youtube.com/watch?v=_9L3j-lVLwk)
 
 [Yo-Yo Ma - Bach Cello Suite No 1](https://www.youtube.com/watch?v=rGgG-0lOJjk)
-
-[How about some Queen?](https://www.youtube.com/watch?v=a01QQZyl-_I)
 
 [Seahaven - Silhouette](https://www.youtube.com/watch?v=uFEouT53IMI)
 
@@ -32,7 +30,5 @@ This is the definitive playlist of music to listen to on our desert island. No o
 [Goodbye, Moonmen](https://youtu.be/TgqiSBxvdws)
 
 [Kuwada - Cherry Cola](https://www.youtube.com/watch?v=eFVZoRV_ZcI)
-
-[How about some Queen?](https://www.youtube.com/watch?v=a01QQZyl-_I)
 
 [Missy Elliott - Get Your Freak On](https://www.youtube.com/watch?v=FPoKiGQzbSQ)
