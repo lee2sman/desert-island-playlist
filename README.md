@@ -1,6 +1,8 @@
 # desert-island-playlist
 This is the definitive playlist of music to listen to on our desert island. No other music.
 
+![meme](https://github.com/lee2sman/desert-island-playlist/blob/master/man-on-desert-island-never-got-to-pick-an-album-16145665.png?raw=true "meme image")
+
 [The BeeGees - Stayin' Alive](https://www.youtube.com/watch?v=I_izvAbhExY)
 
 [Earth Wind and Fire](https://www.youtube.com/watch?v=god7hAPv8f0)
