@@ -38,3 +38,5 @@ This is the definitive playlist of music to listen to on our desert island. No o
 [21 What's New Pussycats and 1 It's Not Unusual](https://www.youtube.com/watch?v=KFgNx5tI7S4)
 
 [Pat Metheny Group - Last Train Home](https://www.youtube.com/watch?v=908kjmbjABI)
+
+![Plastic Beach](https://en.seyvillas.com/img/guide/142/1400x0_90/cousin-island-aerial-view-1.jpg "An Island")
