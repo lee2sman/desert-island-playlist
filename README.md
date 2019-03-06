@@ -19,6 +19,8 @@ This is the definitive playlist of music to listen to on our desert island. No o
 
 [How about some Queen?](https://www.youtube.com/watch?v=a01QQZyl-_I)
 
+[Young Thug - Wyclef Jean](https://www.youtube.com/watch?v=_9L3j-lVLwk)
+
 [Yo-Yo Ma - Bach Cello Suite No 1](https://www.youtube.com/watch?v=rGgG-0lOJjk)
 
 [How about some Queen?](https://www.youtube.com/watch?v=a01QQZyl-_I)
