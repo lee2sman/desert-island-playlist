@@ -21,6 +21,10 @@ This is the definitive playlist of music to listen to on our desert island. No o
 
 [How about some Queen?](https://www.youtube.com/watch?v=a01QQZyl-_I)
 
+[Weezer - Island in the Sun](https://www.youtube.com/watch?v=erG5rgNYSdk)
+
+[Rick Astley - Never Gonna Give You Up](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
+
 [Young Thug - Wyclef Jean](https://www.youtube.com/watch?v=_9L3j-lVLwk)
 
 [Yo-Yo Ma - Bach Cello Suite No 1](https://www.youtube.com/watch?v=rGgG-0lOJjk)
@@ -42,4 +46,3 @@ This is the definitive playlist of music to listen to on our desert island. No o
 [Michael Jackson - Beat it](https://www.youtube.com/watch?v=oRdxUFDoQe0)
 
 ![Plastic Beach](https://en.seyvillas.com/img/guide/142/1400x0_90/cousin-island-aerial-view-1.jpg "An Island")
-
